@@ -9,7 +9,7 @@
 - 1 tsp salt
 - 1/2 onion
 - 1 Tbsp cilantro
-
+- some other spices that you like
 
 ## Instructions
 
